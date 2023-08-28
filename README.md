@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Dimas
+- 🌱 I’m currently learning programing
+- 📫 How to reach me dimasadhy@gmail.com
