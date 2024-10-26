@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Dimas
-- 📫 How to reach me dimasadhy@gmail.com
+- 📫 How to reach me dimasadhy07@gmail.com
